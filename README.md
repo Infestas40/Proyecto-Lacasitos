@@ -1,2 +1,2 @@
 # Proyecto-Lacasitos
-Trabajp en equipo
+Trabajo en equipo
